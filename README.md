@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mittelha
+- 👀 I’m interested in motorbikes
+- 🌱 I’m currently learning at Fountains' campus
+- 💞️ I’m looking to collaborate on appointments
+- 📫 How to reach me: not in any way
+- 😄 Pronouns: I, you, he/she/it, we, they
+- ⚡ Fun fact: I love trucks too!
